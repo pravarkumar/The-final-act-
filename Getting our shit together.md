@@ -24,3 +24,7 @@ no matter what has happened or what will happen in the future if ther is one thi
 
 
 6)Course checklist maintaining the workflow and the workload for each course 
+
+
+7)Make a day by day report and keep check on the work which was assigned and punishment on why we couldnt finish it 
+
