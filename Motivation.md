@@ -16,3 +16,7 @@ sure if we can taccep defeat then we eil make sure that such a pathetic sitcuati
 that we ear th eking we need to cook so hard thats its unbearable and we have to be noticed then.
 
 
+We will never stop if we so scared of studying so hard during exams and then also for eing short of our targets just dont let such a sitsuation arise win every day then then days before the actual exams wont atter we will win no matter what.
+
+We are winning right now and getting that 10 CPI no matter what this is it its now or never we will win this .
+
