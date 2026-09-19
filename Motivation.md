@@ -20,3 +20,12 @@ We will never stop if we so scared of studying so hard during exams and then als
 
 We are winning right now and getting that 10 CPI no matter what this is it its now or never we will win this .
 
+
+Me feel like shit right now is thta not enoguh of a reaosn i want to win i have to win i will win from that fking pecis eof shit me will win me me alone me only 
+
+<img width="473" height="417" alt="Screenshot 2026-09-19 at 10 57 49 PM" src="https://github.com/user-attachments/assets/0ee934d2-cec9-4efc-b5e8-5e998cc34e0f" />
+
+
+THis is my true eego me want to devor anyone bove me and i hate devousing i need to reahc the top to stop this then we gridn it starts right now its only few moths we can do this get throught these shity 1.75 more years and then enjoy my man we will hav the best life tin this whole generaton we will dod evrythign w eneed t gridn right no and prove. apointto js and to jang we need to sho that we ar eon that levle that we too can do it.
+
+
